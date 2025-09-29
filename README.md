@@ -14,7 +14,7 @@ I'm passionate about programming and web development, and I enjoy working with *
 
 ### 📫 Connect with me
 - [LinkedIn](https://www.linkedin.com/in/revathi-s6)
-- Twitter: https://x.com/Revathi2509
+- [Twitter](https://x.com/Revathi2509)
 
 ### 🎬 Fun Facts
 - I love to binge-watch shows and read books in my free time!
