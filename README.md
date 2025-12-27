@@ -40,7 +40,7 @@ I'm passionate about programming and web development, and I enjoy working with *
   - High potential
 
 ## Connect with me 📨
-- [Email (trulyrev1@gmail.com)] 
+- [📧]� (trulyrev1@gmail.com)
     
 
 ---
